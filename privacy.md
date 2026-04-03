@@ -1,6 +1,6 @@
 Cheffi AI Privacy Policy
 
-Last Updated: [Today's Date]
+Last Updated: 04/02/26
 
 Your privacy is our secret ingredient. We built Cheffi AI to help you eat better, not to sell your data. Here’s the breakdown of how we handle your info:
 
